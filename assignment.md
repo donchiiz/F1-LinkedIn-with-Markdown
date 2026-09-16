@@ -17,13 +17,14 @@
 2.  Professionl at steal a brainrot 
 3.  Influencer (Tiktok, Youtube, Instagram), gives nail tutorials to other snails
 4. Opened a few nailshops, one burned down tho lol
-### Contact
-- Email: emelythesnail@gmail.com 
-- Phone: (676)676-6767
----------------------------------------------------------------------
+5. Collabed with ceo of "Cool Hotels" and established a nail salon within hotels
 
 |   twitch gaming  | nail salon locations |  Social Media pages |  
 |---|---|---|
 | - steal a brainrot  | -mars  | - tiktok: @etthesnail |  
 |  - fortnite |  - hsfi  | -instagram: @e.t_thealien  |  
 |  -among us | - Markdown  | -twitter: @emelythesnail  |  
+### Contact
+- Email: emelythesnail@gmail.com 
+- Phone: (676)676-6767
+---------------------------------------------------------------------
